@@ -1,4 +1,4 @@
-
+secret rivals Scripts offers the most advanced rivals Script, with no clip and esp. Perfect for dominating any match.
 
 
 
